@@ -12,3 +12,4 @@ me: you have your backyard universe in your packet.
 
 ## EVERYTHING ELSE IS Earth's Moon!!!!!!!!!!!!!
 
+## If Huamn brains(unless some arent Q_O) are quantum mechanical, then Alien: No-cloning theorem.
